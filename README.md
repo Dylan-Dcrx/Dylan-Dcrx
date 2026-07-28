@@ -1,6 +1,6 @@
 # Dylan Ducroux
 
-**Data Analyst — Python · SQL · Power BI**
+**Data Analyst — Python · SQL · Power BI**  
 Île-de-France (91) · Disponible immédiatement
 
 ---
