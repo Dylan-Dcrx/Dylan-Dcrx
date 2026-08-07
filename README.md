@@ -67,4 +67,4 @@ Français (langue maternelle) · Anglais (B2 — 8 mois au Japon sur un poste an
 
 📧 dylan.ducroux@aol.fr
 💼 [LinkedIn](https://www.linkedin.com/in/dylan-ducroux-8a40033a1/)
-📍 Vigneux-sur-Seine (91), Île-de-France
+
